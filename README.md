@@ -1,0 +1,1 @@
+# Say-sal-elektronik-sim-lator-uygulamas-
